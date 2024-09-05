@@ -1,6 +1,13 @@
 HI **:3** 
 
+b4
+
 ![image](https://github.com/user-attachments/assets/a96bdc8c-5920-47c2-9626-72e42a757a97)
+
+
+img @dress
+
+![gif](https://biscuit.crd.co/assets/images/gallery100/da45fc2e.gif?v=cc1c6dfa)
 
 pls read [rentry](https://rentry.co/bloodyburs) 4 some info on me **^_^** 
 
