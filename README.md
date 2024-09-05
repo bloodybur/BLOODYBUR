@@ -1,18 +1,12 @@
 HI **:3** 
 
-b4
-
-![image](https://github.com/user-attachments/assets/a96bdc8c-5920-47c2-9626-72e42a757a97)
-
-
-img @dress
-
 ![gif](https://biscuit.crd.co/assets/images/gallery100/da45fc2e.gif?v=cc1c6dfa)
+
 
 pls read [rentry](https://rentry.co/bloodyburs) 4 some info on me **^_^** 
 
 
-![image](https://github.com/user-attachments/assets/3787792e-1851-4ba9-9fa3-c88deae5761e)
+![gif](https://biscuit.crd.co/assets/images/gallery46/d33f5b47.gif?v=cc1c6dfa)
 
 
  ***HEY!!*** r u a proshipper and want a cool, active discord server to join **!?**
@@ -25,7 +19,8 @@ pls read [rentry](https://rentry.co/bloodyburs) 4 some info on me **^_^**
  please consider joining **impure! ^_^**
  https://discord.gg/xDgFkJ84DE
 
-![image](https://github.com/user-attachments/assets/8dbd7aca-9bf9-4ae3-9285-e85e76adb977)
+
+![gif](https://biscuit.crd.co/assets/images/gallery46/c87ea82f.png?v=cc1c6dfa)
 
 
  **note:** *please do not harrass me or join the serv to harrass us. most of us are victims, thats why we proship* ***!***
