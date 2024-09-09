@@ -17,7 +17,7 @@ pls read [rentry](https://rentry.co/bloodyburs) 4 some info on me **^_^**
  most of the members are poppytwt, but we have people of all fandoms and **we do not judge!**
  
  please consider joining **impure! ^_^**
- https://discord.gg/xDgFkJ84DE
+ [https://discord.gg/xDgFkJ84DE](https://discord.gg/xDgFkJ84DE)
 
 
 ![gif](https://biscuit.crd.co/assets/images/gallery46/c87ea82f.png?v=cc1c6dfa)
